@@ -1,5 +1,9 @@
 # Hello-word
 
 Hello word read me
+ read_my_minds
+Hey hello github !!!
 
-Hey hello gigit !!!
+You're blowing me off !
+
+and so much more  !
